@@ -1,3 +1,0 @@
-# arshadniazi
-# myweb
-# mypage
